@@ -1,1 +1,1 @@
-# Thesis_Master-s_degree
+# Thesis Master's degree
